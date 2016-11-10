@@ -6,7 +6,7 @@
 
 팀원1 : Lee Dongjin / dj1leerr@gmail.com
 
-팀원2 :
+팀원2 : Kim Ha-Yeon / haaiye@naver.com
 
 팀원3 :
 
